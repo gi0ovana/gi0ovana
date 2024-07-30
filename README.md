@@ -12,4 +12,4 @@ Meu nome é Giovanna Pereira
 
 @gi0ovana
 
-![](https://media1.tenor.com/m/yDxgngEEeY0AAAAC/barbie-pink.gif)
+![](https://media1.tenor.com/m/yBq7aeVxWq8AAAAC/sofia-the-first-princess-sofia.gif)
